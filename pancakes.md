@@ -1,4 +1,4 @@
-Pancakes Receipe - 2. UPDATED 
+Pancakes Receipe - 3. UPDATED 
 
 135g/4¾oz plain flour
 1 tsp baking powder
