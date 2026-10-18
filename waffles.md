@@ -9,4 +9,3 @@ melted and cooled
 (optional)
 1 tbsp sunflower or vegetable oil
 maple syrup
-and icing sugar, to serve (optional)
